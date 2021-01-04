@@ -1,0 +1,4 @@
+Ingredients
+4 slices white bread
+3 tablespoons butter, divided
+2 slices Cheddar cheese
